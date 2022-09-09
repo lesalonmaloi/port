@@ -1,0 +1,6 @@
+# port is rrr56
+
+xsertyuaiopk[lzpoiuwqzacxgbhjkL:khsgwdyugwhjsqgqshdgwydhwgxgvsx
+vxsbfdcegfd3ebhjd
+dbbsvejhcfv3edcgv3edvedghcjeklc 3ec
+bvhj3rgfu4thr4m fnvtrjugvuktj4r,g
